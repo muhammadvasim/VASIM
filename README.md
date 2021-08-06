@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @muhammadvasim
+- 👋 Hi, I’m  MUHAMMAD VASIM
 - 👀 I’m interested in PROGRAMING
 - 🌱 I’m currently learning COMPUTER SCIENCE in krist raj h.s.s
 - 💞️ I’m looking to collaborate on 
